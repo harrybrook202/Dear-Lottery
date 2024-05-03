@@ -1,1 +1,2 @@
 # Dear-Lottery
+In "[Dear Lottery](https://nagalanddearlotteryresult.com/_)" follow the journey of a diverse group of individuals whose lives intersect through the whims of fate embodied in a single lottery ticket. From the bustling streets of a metropolitan city to the quiet corners of a small town, each character carries their hopes, dreams, and burdens as they clutch onto the promise of a life-changing windfall.
